@@ -19,7 +19,13 @@ i don't mind having inspiration taken from my skins!
 
 
 
-you can find out more about me on my [strawpage](https://crtvirus.straw.page/)<br> but the basis is, we are a fictive-heavy (traumagenic) system of around 3-4 frequent members.<br> i use we and i interchangably and our pronouns can be dependent on who is co-fronting.
+you can find out more about me on my [strawpage](https://crtvirus.straw.page/) but the basis is, we are a fictive-heavy<br>system of around 3-4 frequent members.
+
+i use we and i interchangably and our pronouns can be dependent on who is co-fronting.<br>no, we do not owe you our life story.
+
+
+![sdfsgda](https://github.com/user-attachments/assets/0228b23c-21fb-4ccc-8757-3b0a1ef52798)
+
 
 **basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>syscourse, or lgbtq+ discourse. mspec identities are valid and part of LGBTQ+ history.<br>policing people is a waste of time and will only make you and others around you miserable. <br>block and move on with your life.
 
