@@ -7,8 +7,10 @@
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
 
-hello! if you're here you're probably from ponytown. <br><br> i usually hang around with my pals or sit around afk. if i don't respond that's likely why!<br> you can reach me better through whispering.
-i do not roleplay in ponytown. <br><br>i'm usually fine with c + h but if i move away please don't take it personally!
+hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk. if i don't respond that's likely why!<br> you can reach me better through whispers.
+i do not rp.
+
+i'm usually fine with c + h but if i move away please don't take it personally!
 
 i don't mind having inspiration taken from my skins!
 
@@ -19,7 +21,7 @@ i don't mind having inspiration taken from my skins!
 
 you can find out more about me on my [strawpage](https://crtvirus.straw.page/)<br> but the basis is, we are a fictive-heavy (traumagenic) system of around 3-4 frequent members.<br> i use we and i interchangably and our pronouns can be dependent on who is co-fronting.
 
-**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paraphilic people, <br>syscourse, or identity discourse. mspec identities are valid and part of LGBTQ+ history.
+**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paraphilic people, <br>syscourse, or identity discourse. mspec identities are valid and part of LGBTQ+ history.<br>policing people is a waste of time and will only make you and others around you miserable.
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
