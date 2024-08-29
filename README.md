@@ -27,7 +27,9 @@ i use we and i interchangably and our pronouns can be dependent on who is co-fro
 ![sdfsgda](https://github.com/user-attachments/assets/0228b23c-21fb-4ccc-8757-3b0a1ef52798)
 
 
-**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>syscourse, or lgbtq+ discourse. mspec identities are valid and part of LGBTQ+ history.<br>policing people is a waste of time and will only make you and others around you miserable. <br>block and move on with your life.
+**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>syscourse, or lgbtq+ discourse. mspec identities are valid and part of LGBTQ+ history.
+
+policing people is a waste of time and will only make you and others around you miserable. <br>block and move on with your life.
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
