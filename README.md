@@ -7,11 +7,9 @@
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
 
-hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk. if i don't respond that's likely why!<br> you can reach me better through whispers.
+hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk- you can reach me better with /w.
 
 **i do not roleplay.** please do not come up to us and roleplay - it makes me uncomfortable.
-
-i'm usually fine with c + h but if i move away please don't take it personally!
 
 i don't mind having inspiration taken from my skins!
 
@@ -26,13 +24,11 @@ we are a fictive-heavy<br>system of around 3-4 frequent members; the main to fro
 
 i use we and i interchangably and our pronouns can be dependent on who is co-fronting.<br>no, we do not owe you our life story.
 
-we are prone to age regress - particularly our member ice king.
-
 
 ![sdfsgda](https://github.com/user-attachments/assets/0228b23c-21fb-4ccc-8757-3b0a1ef52798)
 
 
-**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>nsfw age regressors, syscourse, or lgbtq+ discourse. we are a firm supporter of all good-faith identities.
+**basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>nsfw age regressors, syscourse, or lgbtq+ discourse. <br><br>we are a firm supporter of all good-faith identities.
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
