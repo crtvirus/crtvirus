@@ -20,7 +20,7 @@ i don't mind having inspiration taken from my skins!
 
 you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 
-we are a fictive-heavy<br>system of around 3-4 frequent members; the main to front being **simon** and **ice king**.
+we are a fictive-heavy system of around 3-4 frequent members;<br>the main to front being **simon** and **ice king**.
 
 i use we and i interchangably and our pronouns can be dependent on who is co-fronting.<br>no, we do not owe you our life story.
 
