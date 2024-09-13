@@ -8,7 +8,8 @@
 
 
 hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk. if i don't respond that's likely why!<br> you can reach me better through whispers.
-i do not rp.
+
+**i do not roleplay.** please do not come up to us and roleplay - it makes me uncomfortable.
 
 i'm usually fine with c + h but if i move away please don't take it personally!
 
