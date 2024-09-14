@@ -1,31 +1,24 @@
 <div align="center">
-
-![gasdagds](https://github.com/user-attachments/assets/99e39d8f-ea15-4a99-8c65-1896cffa066b)
-
-**simon - he / it - 22** 
-
+  
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
+![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)
+![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)
+![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
-hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk- you can reach me better with /w.
+### **simon - he / it - 22** 
+<br>hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk- you can reach me better with /w.
 
 **i do not roleplay.** please do not come up to us and roleplay - it makes me uncomfortable.
-
-i don't mind having inspiration taken from my skins!
-
-
-![sdfsgda](https://github.com/user-attachments/assets/0228b23c-21fb-4ccc-8757-3b0a1ef52798)
 
 
 
 you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 
-we are a fictive-heavy system of around 3-4 frequent members;<br>the main to front being **simon** and **ice king**.
-
-i use we and i interchangably and our pronouns can be dependent on who is co-fronting.<br>no, we do not owe you our life story.
 
 
-![sdfsgda](https://github.com/user-attachments/assets/0228b23c-21fb-4ccc-8757-3b0a1ef52798)
+![gdssgfd](https://github.com/user-attachments/assets/2df68f70-62e2-435f-a177-c8446118499d)
+
 
 
 **basic dni criteria applies** (e.g. bigots, zionists, proship). we don't affiliate with pro-paras, "radqueers", <br>nsfw age regressors, syscourse, or lgbtq+ discourse. <br><br>we are a firm supporter of all good-faith identities.
