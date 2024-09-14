@@ -6,7 +6,7 @@
 
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / it • 22**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
-<br>hello! if you're here you're probably from pt. <br><br> i might be sitting around afk- you can reach me better with /w.
+<br>hello! if you're here you're probably from pt. <br><br> i might be sitting around afk- you can reach me better via whisper.
 
 **i do not roleplay.** please do not come up to us and rp. it makes us uncomfortable.
 
