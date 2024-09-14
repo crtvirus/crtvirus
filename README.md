@@ -4,7 +4,8 @@
 
 ![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
-### **simon • he / it • 22** 
+### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / it • 22**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
+
 <br>hello! if you're here you're probably from pt. <br><br> i might be sitting around afk- you can reach me better with /w.
 
 **i do not roleplay.** please do not come up to us and rp. it makes us uncomfortable.
