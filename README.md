@@ -2,9 +2,7 @@
   
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
-![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)
-![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)
-![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
+![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
 ### **simon - he / it - 22** 
 <br>hello! if you're here you're probably from pt. <br><br> i usually hang around with my pals or sit around afk- you can reach me better with /w.
