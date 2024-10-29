@@ -20,7 +20,11 @@ you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 
 
 
-**basic dni criteria applies** (e.g. bigots, zionists, proship) as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), or lgbtq+ discourse (e.g. anti mspec)<br><br>**we are a firm supporter of all good-faith identities.**<br>choosing to attack those you do not understand speaks more for you than it does me.
+**basic dni criteria applies** (e.g. bigots, zionists, proship) as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec)
+
+**i am extremely uncomfortable with these** - dsmp, south park, mouthwashing shippers/jimmy skins, <br>vivziepop media (e.g. hazbin/helluva), winterkov & wintergrof, "lobotomy au" people
+
+**we are a firm supporter of all good-faith identities.**
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
