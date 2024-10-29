@@ -20,9 +20,9 @@ you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 
 
 
-**basic dni criteria applies** (e.g. bigots, zionists, proship) as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec)
+**do not interact / i will block you on sight** - bigots, zionists, proship as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec)
 
-**i am extremely uncomfortable with these** - dsmp, south park, mouthwashing shippers/jimmy skins, <br>vivziepop media (e.g. hazbin/helluva), winterkov & wintergrof, "lobotomy au" people
+**i am uncomfortable with these and will likely block you for these unless i already know you** - dsmp, south park,<br> mouthwashing shippers/jimmy skins, vivziepop media (e.g. hazbin/helluva), winterkov & wintergrof, "lobotomy au" people
 
 **we are a firm supporter of all good-faith identities.**
 
