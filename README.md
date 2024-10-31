@@ -4,7 +4,9 @@
 
 ![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
+
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / it • 22**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
+
 
 <br>hello! if you're here you're probably from pt. <br><br> i might be sitting around afk- you can reach me better via whisper.
 
@@ -15,14 +17,11 @@
 you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 
 
-
 ![gdssgfd](https://github.com/user-attachments/assets/2df68f70-62e2-435f-a177-c8446118499d)
 
 
 
-**do not interact / i will block you on sight** - bigots, zionists, proship as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec)
-
-**i am uncomfortable with these and will likely block you for these unless i already know you** - dsmp, south park,<br> mouthwashing shippers/jimmy skins, vivziepop media (e.g. hazbin/helluva), winterkov & wintergrof, "lobotomy au" people
+**do not interact / i will block you on sight** - bigots, zionists, proship as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec).
 
 **we are a firm supporter of all good-faith identities.**
 
@@ -47,4 +46,8 @@ you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
 ![dbji5wt-fcf64126-5f62-4f10-924a-04405eda541f](https://github.com/user-attachments/assets/04375505-5a4e-4dd5-ae18-470c6835c862)
 ![dbzq8qt-b0f98fc2-dcb4-4b1f-9104-8a4beb13d8b0](https://github.com/user-attachments/assets/20a06b13-c240-4609-90d9-a99da05d880c)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vj6ueklxi1l0ub4akx9oh6b3w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
+
 ![ezgif-4-f0723fd598](https://github.com/user-attachments/assets/f5823c0a-c8e9-429e-a425-6a518de7a3f9)
+
+
