@@ -7,15 +7,13 @@
 
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / it • 22**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
+[strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-<br>hello! if you're here you're probably from pt. <br><br> i might be sitting around afk- you can reach me better via whisper.
+hello! if you're here you're probably from pt.
+
+i might be sitting around afk- you can reach me better via whisper.
 
 **i do not roleplay.** please do not come up to us and rp. it makes us uncomfortable.
-
-
-
-you can find out more about me on my [strawpage](https://crtvirus.straw.page/)
-
 
 ![gdssgfd](https://github.com/user-attachments/assets/2df68f70-62e2-435f-a177-c8446118499d)
 
