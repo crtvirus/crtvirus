@@ -45,7 +45,3 @@ i might be sitting around afk- you can reach me better via whisper.
 ![dbzq8qt-b0f98fc2-dcb4-4b1f-9104-8a4beb13d8b0](https://github.com/user-attachments/assets/20a06b13-c240-4609-90d9-a99da05d880c)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vj6ueklxi1l0ub4akx9oh6b3w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
-
-![ezgif-4-f0723fd598](https://github.com/user-attachments/assets/f5823c0a-c8e9-429e-a425-6a518de7a3f9)
-
-
