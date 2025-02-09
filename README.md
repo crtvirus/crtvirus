@@ -21,6 +21,8 @@ i might be sitting around afk- you can reach me better via whisper.
 
 **do not interact / i will block you on sight** - bigots, zionists, proship as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec).
 
+**please do not approach me with the intent to ship my skins with your own.**
+
 **we are a firm supporter of all good-faith identities.**
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
