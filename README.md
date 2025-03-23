@@ -9,9 +9,9 @@
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-hello! if you're here you're probably from pt.
+hello! if you're here you're probably from pt.<br>i might be sitting around afk- you can reach me better via whisper.
 
-i might be sitting around afk- you can reach me better via whisper.
+under 18s on 18+ please do not interact with me.<br>ideally i'd like to distance from anyone 16 and under generally.
 
 **i do not roleplay.** please do not come up to us and rp. it makes us uncomfortable.
 
