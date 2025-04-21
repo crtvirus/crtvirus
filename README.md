@@ -44,3 +44,5 @@ under 18s on 18+ please do not interact with me.<br>ideally i'd like to distance
 ![tumblr_99b994a4e6ec15123101ef836f56ab29_46acdcc7_100](https://github.com/user-attachments/assets/75c14e2e-bf0b-4fed-877c-746176946998)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vj6ueklxi1l0ub4akx9oh6b3w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
+
+![](https://komarev.com/ghpvc/?username=crtvirus)
