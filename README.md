@@ -5,7 +5,7 @@
 ![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
 
-### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / it • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
+### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / she / they • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
