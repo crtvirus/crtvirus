@@ -5,25 +5,32 @@
 ![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
 
 
-### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / she / they • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
+### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / they / she • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-hello! if you're here you're probably from pt.<br>i might be sitting around afk either offtab or doing something else - you can reach me better via whisper.
+hello! i'm **simon**. i'm a transmasc genderweird bigender butch bi lesbian. taken by my beautiful wife
 
-under 18s on 18+ please do not interact with me.<br>ideally i'd like to distance from anyone 16 and under generally.
+we are a fictive-heavy traumagenic system consisting of 3 main fronters; **the host**, **simon petrikov**, and **ice king.**<br>while we have other headmates, they do not typically front.
 
-**i do not roleplay.** please do not come up to us and rp. it makes us uncomfortable.
+i'm friendly and love to chat but i may struggle with words at times! we're easier to reach via atabook or ingame whisper :-)
+
+please don't rp with me or ship your skins with mine. it makes us extremely uncomfortable.
+
 
 ![gdssgfd](https://github.com/user-attachments/assets/2df68f70-62e2-435f-a177-c8446118499d)
 
 
 
-**do not interact / i will block you on sight** - bigots, zionists, proship as well as pro-paras, "radqueers", <br>"sexual age regressors", syscourse (including origin discourse), lgbtq+ discourse (e.g. anti mspec).
+**DNI criteria**
 
-**please do not approach me with the intent to ship my skins with your own.** the same goes for any flirting.
+homophobic, transphobic, etc.<br>misogynists, transmisogynists, TERFs<br>racist, zionist, antisemitic, etc.<br>ableist or fatphobic (e.g. r slur usage, syscourse, fakeclaimers)<br>proship/comship, radqueer, lolisho, DDLG<br>anti "contradicting" identities (e.g. anti mspec gay/lesbian)<br>anti age-regresssor
 
-**we are a firm supporter of all good-faith identities.**
+**thin ice unless i already know you**
+
+south park fans<br>hazbin/helluva fans<br>MCYT fans<br>winterkov shippers. leave me alone
+
+**we are a supporter of all good-faith identities & block liberally to curate our own experience.**
 
 ![bar-Snowflakes](https://github.com/user-attachments/assets/eddbfcd4-9ccb-43e5-9e35-e5b5cf576486)
 
@@ -42,6 +49,8 @@ under 18s on 18+ please do not interact with me.<br>ideally i'd like to distance
 ![tumblr_6078a1ec6e155b8d2d64825fddc0c9eb_360ab009_100](https://github.com/user-attachments/assets/07f4d578-78d5-4e00-b019-20e45067f29c)
 ![gdsffd](https://github.com/user-attachments/assets/fba55da1-a6f2-44c1-a60c-660f622bef6c)
 ![tumblr_99b994a4e6ec15123101ef836f56ab29_46acdcc7_100](https://github.com/user-attachments/assets/75c14e2e-bf0b-4fed-877c-746176946998)
+
+![image](https://github.com/user-attachments/assets/6f3c79bc-fed1-4f54-8599-ccaaf304c9a8)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vj6ueklxi1l0ub4akx9oh6b3w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 
