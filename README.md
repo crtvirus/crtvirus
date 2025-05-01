@@ -7,7 +7,7 @@
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-hello! i'm **simon**. i'm a transmasc genderweird bigender butch bi lesbian.<br>💚 taken by my beautiful wife [10/01/2025]
+hello! i'm **simon**. i'm a transmasc bigender butch bi lesbian.<br>💚 taken by my beautiful wife [10/01/2025]
 
 i'm friendly and love to chat but i may struggle with words at times!<br>we're easier to reach via atabook or ingame whisper :-)
 
