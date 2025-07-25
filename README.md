@@ -1,32 +1,25 @@
 <div align="center">
+  
+![36uWcyn](https://github.com/user-attachments/assets/8e65af54-cfbd-41cf-b2c5-5b85fcfdf3ae)![QDN3rm4](https://github.com/user-attachments/assets/e2371f19-bc66-4719-9ce5-1e086cbaa185)![GZUB8gL](https://github.com/user-attachments/assets/431fbfa8-7bdd-4364-8011-30aed3816dc0)
 
-![ezgif-7-e093cee388](https://github.com/user-attachments/assets/300d1ea0-66e0-4782-bdca-6c45e919b9f2)![ezgif-7-52068e6586](https://github.com/user-attachments/assets/26adeb95-154f-45d7-b502-a3567fbfbc1e)![ezgif-7-9222f2b419](https://github.com/user-attachments/assets/9883c042-9c9a-4621-92b1-457d99af0386)
+
 
 
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / they / she • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-hello! i'm **simon**. i'm transmasc, bigender & butch.<br>💚 taken by my beautiful wife [10/01/2025]
+hello! i'm **simon**. i'm transmasc, bigender & a butch lesbian.<br>traumagenic system, regressor & professional weirdguy
 
 i'm friendly and love to chat but i may struggle with words at times!<br>we're easier to reach via atabook or ingame whisper :-)
 
-### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **BYI**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
+💚 taken by my beautiful wife [10/01/2025]
 
-we are a traumagenic system consisting of 3 main fronters; **the host**, **simon**, and **ice king.**<br>while we have other headmates, they do not typically front as often.
+### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **DNI**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
-we also age regress on occasion! we will usually have the signifier "agere" in our name if so.<br>**age regression is an entirely safe for work practice that those with mental health issues may face.**<br>**we do not associate with those that do so in a kink or otherwise NSFW practice.**
+basic DNI criteria<br>zionist, antisemitic, etc.<br>ableist (e.g. r slur usage), fatphobic, syscourse)<br>self-proclaimed proship/comship/darkship, radqueer, etc.<br>anti "contradicting" identities (e.g. anti mspec gay/lesbian)<br>winterkov shippers. leave me alone
 
-### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **DNI criteria**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
-
-homophobic, transphobic, etc.<br>misogynists, transmisogynists, TERFs<br>racist, zionist, antisemitic, etc.<br>ableist or fatphobic (e.g. r slur usage, syscourse, fakeclaimers)<br>proship/comship, radqueer, lolisho, DDLG<br>anti "contradicting" identities (e.g. anti mspec gay/lesbian)<br>anti age-regresssor
-
-### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **thin ice**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
-(unless i already know you)
-
-south park fans<br>hazbin/helluva fans<br>MCYT fans<br>winterkov shippers. leave me alone
-
-**we are a supporter of all good-faith identities & block liberally to curate our own experience.**
+**we are a supporter of all good-faith identities<br> & block liberally to curate our own experience.**
 
 ![gdssgfd](https://github.com/user-attachments/assets/2df68f70-62e2-435f-a177-c8446118499d)
 
