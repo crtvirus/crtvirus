@@ -13,7 +13,7 @@ hello! i'm **simon**. i'm transmasc, bigender & a butch lesbian.<br>traumagenic 
 
 i'm friendly and love to chat but i may struggle with words at times!<br>we're easier to reach via atabook or ingame whisper :-)
 
-💚 taken by my beautiful wife [10/01/2025]
+💚 taken by my [princess](https://github.com/gooeyslop) [10/01/2025]
 
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **DNI**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
