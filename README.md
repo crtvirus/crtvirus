@@ -39,7 +39,11 @@ basic DNI criteria<br>zionist, antisemitic, etc.<br>ableist (e.g. r slur usage),
 ![gdsffd](https://github.com/user-attachments/assets/fba55da1-a6f2-44c1-a60c-660f622bef6c)
 ![tumblr_99b994a4e6ec15123101ef836f56ab29_46acdcc7_100](https://github.com/user-attachments/assets/75c14e2e-bf0b-4fed-877c-746176946998)
 
+![picmix com_13114510](https://github.com/user-attachments/assets/c099c3e4-ec25-4be0-8447-7febfdf036d0)![picmix com_13115884](https://github.com/user-attachments/assets/a9fca0dc-2ba5-43c9-be8d-5fcec0b6e548)
+
+
 ![image](https://github.com/user-attachments/assets/6f3c79bc-fed1-4f54-8599-ccaaf304c9a8)
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=vj6ueklxi1l0ub4akx9oh6b3w&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 
