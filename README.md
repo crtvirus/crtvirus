@@ -9,7 +9,7 @@
 
 [strawpage](https://crtvirus.straw.page/) • [atabook](https://crtvirus.atabook.org/) • [bluesky](https://bsky.app/profile/crtvirus.bsky.social)
 
-hello! i'm **simon**. i'm transmasc, bigender & a butch lesbian.<br>traumagenic system, regressor & professional weirdguy
+hello! i'm **simon**. i'm transmasc, bigender & a butch lesbian.<br>traumagenic system, regressor & professional freak
 
 i'm friendly and love to chat but i may struggle with words at times!<br>we're easier to reach via atabook or ingame whisper :-)
 
