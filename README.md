@@ -4,7 +4,7 @@
 
 ### ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)   **simon • he / they / she • 23**   ![Illustration](https://github.com/user-attachments/assets/cbbd6e34-ee1c-41f2-8057-4852536893e5)
 
-[strawpage](https://petrlkov.straw.page/) • [atabook](https://crtvirus.atabook.org/)
+[strawpage](https://petrik0v.straw.page/) • [atabook](https://crtvirus.atabook.org/)
 
 hello! i'm **simon**. i'm transmasc, bigender & a butch lesbian.<br>traumagenic system & overall weird guy
 i'm friendly and love to chat but i may struggle with words at times!<br>we're easier to reach via atabook, ingame whisper, or discord.
