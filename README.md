@@ -12,8 +12,7 @@ i'm friendly and love to chat but i may struggle with words at times!<br>we're e
 💚 taken by my [princess](https://github.com/gooeyslop) [10/01/2025]
 
 we don't have a solid DNI criteria, but we want nothing to do with those who self-proclaim themselves as 'proshippers'. dark topics should be explored within fiction, but not under the guise of fandomization. this is not, and will never be, respectful to victims.
-
-in addition, fakeclaiming and syscourse has no place in a community that is already stigmatized as is. help eachother rather than putting one another down. there are no net-positives to faking plurality, so stop accusing people.
+in addition, fakeclaiming and syscourse has no place in a community that is already stigmatized as is. this includes people in our inbox telling us we're not a system. i hate to break it to you, but an anonymous message isn't going to make us stop expressing who we are. suck it up and block me.
 
 i apologise if we block or otherwise act a little standoffish towards other skins of myself or my wife! i'm trying to get better about it, but it's nothing personal.
 
